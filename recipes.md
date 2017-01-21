@@ -11,11 +11,13 @@ Can’t quite remember exact amount, but basically around two 8cm wide 6cm deep 
 * 5g coco ground
 * 50g caster sugar
 * 2 medium sized eggs
+* A pinch of salt
 
 ##Steps
 
 * Add eggs
 * Add sugar
+* Add a pinch of salt
 * Beat it till it is airy
 * add coffee and coco and incorporate
 * add flour and fold them
